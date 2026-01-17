@@ -1,3 +1,6 @@
+![Sample 2](../IMG-20240528-WA0003.jpg)
+![Sample 1](../IMG-20240528-WA0002.jpg)
+
 ### :robot: Ops
 
 </br>
